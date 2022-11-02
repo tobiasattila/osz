@@ -1,2 +1,1 @@
 # őszi képek
-#Remélem megjelennek
